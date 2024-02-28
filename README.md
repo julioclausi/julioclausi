@@ -1,3 +1,3 @@
 Under construction...
 
-Studying Big Data at PUCPR - Pontifícia Universidade Católica do Paraná.
+Studying Applied Artificial Intelligence at PUCPR - Pontifícia Universidade Católica do Paraná.
